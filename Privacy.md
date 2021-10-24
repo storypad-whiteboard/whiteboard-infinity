@@ -74,5 +74,5 @@ Notification of Changes
 
 Other Provisions as Required by Law<br /> <br /> </b>Numerous other provisions and/or practices may be required as a result of laws, international treaties, or industry practices. It is up to you to determine what additional practices must be followed and/or what additional disclosures are required. Please take special notice of the California Online Privacy Protection Act (CalOPPA), which is frequently amended and now includes a disclosure requirement for “Do Not Track” signals.
 
-If you feel that we are not abiding by this privacy policy, you should contact us immediately via telephone at{" "}</b><b>4158683699</b><b>or{" "}via email at kevin.li.toronto@gmail.com</b><b>.
+If you feel that we are not abiding by this privacy policy, you should contact us immediately via telephone at 4158683699 via email at storypad@outlook.com</b><b>.
                     
